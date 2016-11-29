@@ -1,0 +1,1 @@
+Aufgrund begrenzter Archiv-Groesse wurden die Bilder komprimiert.
